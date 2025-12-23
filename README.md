@@ -1,4 +1,5 @@
-# koraion2-discord-2-
+<meta name="google-site-verification" content="Tnz_kBghenBr04C4qTcxRGDgC7SZwWKQZGmsSp_XwpM" />
+# 아이온2 디스코드 | KOR Aion2 한국 통합 디스코드
 아이온2 디스코드 추천 | 아이온2 한국 통합 디스코드 KOR Aion2. Aion2 Discord Korea 커뮤니티에서 파티 모집, 성역(루드라), 통합 거래소를 이용해보세요.
 
 아이온2 한국 유저를 위한 통합 디스코드 커뮤니티입니다.  
